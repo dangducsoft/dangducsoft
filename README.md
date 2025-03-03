@@ -1,16 +1,60 @@
-## Hi there 👋
+## [Dang Duc](https://medium.com/@dangducsoft)
 
-<!--
-**dangducsoft/dangducsoft** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Doraemon, Nobita, Gian & Suneo: Real & Imagined Photos & Drawings!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOvtWhZM-nGF3CUu5B81QSQ6)
+- [The Wedding Banquet (2025) - Official Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOv2pcCK4irIK7D_X7BiFpWC)
+- [Doraemon Nobita Xuka: The Ultimate Playlist!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOs6f2eOBEvNS-e4-nrfiWBQ)
+- [The Beekeeper (2024) Movie: All Trailers, Clips & Reviews!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOtHPJFd5O7Eh6CLC25oMMgu)
+- [Waking Madison (2010) Movie: Reviews, Trailers & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOuE5z55mxpOncQr8_zntzLg)
+- [Doraemon Tamil Movies: Full Movies, Explanations & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOu2_UhVKe205onHX71Pn32m)
+- [Doraemon & Iron Man: Epic Adventures & Battles!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOuxCnAsfYk4h0kQPmXe_245)
+- [Easy Doraemon & Nobita Drawings for Kids!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOv4t6PEKkXkIVYSG09IlGex)
+- [April 8th, 2010: A Blast from the Past - Movies, Events & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOtVRWX3vVyUBDYssPiJIeZ-)
+- [Megamind (2010) Movie: Ultimate Guide & Behind-the-Scenes!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOvtw5bsAEHjh59ldlbK_Sjj)
+- [2024 Movie Earworms: The Biggest Sounds of the Year!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOuLcVdiMxDC_R_EIf7f_fXx)
+- [2011 Boy Toy Movie & More: Trailers, Related Films & Fun!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOuxnbDZdVH3mtg1cku1oIyn)
+- [Epic Battles & Intrigue: Three Kingdoms: Resurrection of the Dragon (2010) - Full Movie & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOtojYznZGi6vWTrYruBa9Y3)
+- [🔥2024 Movie Mania: Biggest Blockbusters & Trailers!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOuKX84YlsgrIp5TJT_FrX4w)
+- [Hop (2011) Movie: Official Trailers, Clips & Full Movie Analysis!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOtrMjWuHgS_LT634zm92jz0)
+- [🔥Epic 2025 Movie Kingdom: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOt5D1m5R_3Yop3nveEbGl23)
+- [Noaptea lui Vlad 2024: The Complete Guide - Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOtSxfGhY78CYwrEUrMDrm9v)
+- [New Doraemon & Nobita Episodes 2024 (Hindi Dubbed) - No Zoom!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOsyahmpOsN7jAuaNN54-rqk)
+- [Nobita's Prehistoric Japan Adventures: Doraemon Movie & Episode Highlights!](https://www.youtube.com/playlist?list=PL0-tn1H4qWOsJ7UyAseau4YCh_z6bPEpG)
+- [Doraemon, Nobita, Gian, & Suneo: AI Art, Drawings & More!](https://www.youtube.com/playlist?list=PLSGqp-Z4fT93fMIDMXW-tIsz0ABuoJp6F)
+- [নবীতা গল্প ও অন্যান্য বাংলা কার্টুন: শিশুদের জন্য মজাদার গল্প](https://www.youtube.com/playlist?list=PLnjUErQCRZUOlbe1NRlytMhecWW2ul7DL)
+- [Nobita's Arabian Nights Adventure: Doraemon's Magical Journey!](https://www.youtube.com/playlist?list=PLevUlbhuX1luhkX4ihFI0MRRnHfnnmvQ1)
+- [Doraemon Nobita's Dad's American Adventure: Full Playlist!](https://www.youtube.com/playlist?list=PLglIeBvNJgbz3YTiUdbHH7x45AhMMWWfD)
+- [Ultimate Nobita & Doraemon OST Collection: Every Theme Song & BGM!](https://www.youtube.com/playlist?list=PLEoB85L0xBPT0fCa_JctYtfgqyN-dI12N)
+- [2025 Movie Countdown: To a Land Unknown & Beyond!](https://www.youtube.com/playlist?list=PLPd8O084RbopLil_vQTiLnIT4mnU8oAl8)
+- [The Smurfs 2025 Movie: Official Trailers, Teasers & More!](https://www.youtube.com/playlist?list=PLPd8O084RbopQrN3akbmUvBYc_cFqpY0F)
+- [Courage the Cowardly Dog: 2024 Movie Hype & More!](https://www.youtube.com/playlist?list=PL67i4ZwicJLPpVBhqXTlwtUBNKsO6jKyS)
+- [Une Part Manquante (2024) Movie: Official Trailer, Interviews & More!](https://www.youtube.com/playlist?list=PL8RWO1B6fFxN6jBPnM5kHvy6zuJK2fmUR)
+- [Sous la Seine (Under Paris) 2024:  Netflix Movie Deep Dive!](https://www.youtube.com/playlist?list=PLnjUErQCRZUPWM0sedUeubqVcSBiV8_Mo)
+- [Diamanti (2024) Movie: Official Trailers, Clips & More!](https://www.youtube.com/playlist?list=PLB_qbJ0Faj3kghPcQpb4PTQ6QKKdP-Vv5)
+- [Baekhyun 2024 Fan Meeting Moments: Sweet Paradise!](https://www.youtube.com/playlist?list=PLN8xKJoB1xm2ilLa8fzA-4qu6okUNLI-r)
+- [Epic 25th Anniversary Concerts & Movie Events 2024](https://www.youtube.com/playlist?list=PLR0jfGJrfRoAA9RFmqOoC-BpzFv5L0FR0)
+- [2024 Movie Gua Da Feng: Epic Chinese Action & Comedy Await!](https://www.youtube.com/playlist?list=PLZvDK059EzD2wAVYU3pCIGGJBnPFu0rx0)
+- [Care Bears Festival of Fun: A Nostalgic Trip Back to 2010!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk943mqFGggtTCQSF2LcJV_I)
+- [Dive Deep into Crime After Crime (2011): The Untold Story](https://www.youtube.com/playlist?list=PLvaMqgvQgbYMttAPqz00k61RIm79mmRnI)
+- [Top 2025 Movie Releases: Trailers, News & More!](https://www.youtube.com/playlist?list=PLZvDK059EzD09mfdLx7uxzPlnd07qrjWt)
+- [Ozma 2024: Movie Trailers, News & Speculation!](https://www.youtube.com/playlist?list=PLEv-krsUOI8tmjUFPu0ycVkNOwxBSOplo)
+- [Nobita's Maze Adventures: Full Doraemon Episodes & Movies!](https://www.youtube.com/playlist?list=PLQKMDm74kMfVFhozbjV3BaNVNMpP-Pofg)
+- [Ma este gyilkolunk (2024) - Teljes Film Bemutató, Előzetesek és Kulisszatitkok!](https://www.youtube.com/playlist?list=PLQKMDm74kMfXkDBA3qw9N_Q9L9MYITEkh)
+- [Doraemon Movie 44: Nobita's Thrilling New Adventure!](https://www.youtube.com/playlist?list=PLnjUErQCRZUMz6j1UC4n0ZMynBbqiE4h4)
+- [Doraemon: Stand By Me - Full Hindi Movie & More!](https://www.youtube.com/playlist?list=PLEv-krsUOI8vRXZ1eY9eqdM5RlTMLd1CI)
+- [Doraemon Nobita Girl Episodes: Full Movies & More!](https://www.youtube.com/playlist?list=PLbMpUVoTF9xyf3GRKRF90g8BqivWjtjik)
+- [Doraemon, Nobita & Shizuka's Wedding: All Moments!](https://www.youtube.com/playlist?list=PLB_qbJ0Faj3lZqykCKA1d1Wld4IkCf-ka)
+- [🎬 2025 Movie Preview: Are You There? & More!](https://www.youtube.com/playlist?list=PLN8xKJoB1xm0jEoWuN4FcfGUxEMsKV8FE)
+- [Nobita's Epic Rescues: Doraemon's Best Friend Saves the Day!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zQLrX40MP2H2ulY7FE2qHJP)
+- [Nobita & Shizuka's Final Chapter: The Ultimate Doraemon Playlist](https://www.youtube.com/playlist?list=PLS9eLZ7B4fw54OzlChT4VaygktfESIK-e)
+- [The Apprentice (2024) Movie: Official Trailers, Clips & Behind-the-Scenes](https://www.youtube.com/playlist?list=PLmkktcV0YjXq4c4e2leHT8yZv6zGOQEVT)
+- [Doraemon Nobita's Future Adventures: A Complete Movie & Episode Playlist](https://www.youtube.com/playlist?list=PL8RWO1B6fFxPCz8hpEOO97tf9klK7Jojv)
+- [নবীদের গল্প: ইসলামিক কার্টুন ও বাংলা কাহিনী](https://www.youtube.com/playlist?list=PLUrVOq2axMbrI2mOU2GbPAihXRDEWhMGY)
+- [2024 Movie Bonanza: Top Films & Must-Watch Trailers](https://www.youtube.com/playlist?list=PLy4rYi3WF7zQCLz4FudsoeEZA5AniNwOg)
+- [2024 Movie Frenzy: Must-See Films & Beyond!](https://www.youtube.com/playlist?list=PL8RWO1B6fFxMRTWu8EPLLJ-D4hqAwzXfx)
+- [2025 Movie Graduates: Must-See Films & Trailers](https://www.youtube.com/playlist?list=PL8RWO1B6fFxMvXoDeuMM0POfcnPX6Hhur)
+- [Berlin Bytch Love 2024: Movie Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PL1hsELdI-2bAGixek4IBgVYZFN_djlDJI)
+- [The Activated Man (2024): Official Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLEv-krsUOI8uN9un0pHhNjRMmBBX-pZ87)
+- [Replika AI 2024: The Future of Friendship & Beyond?](https://www.youtube.com/playlist?list=PLevUlbhuX1lu_paJIHmVHepinO7xd1tK-)
+- [Doraemon: Nobita's Night Before Wedding - Full Story & Special Moments!](https://www.youtube.com/playlist?list=PL1hsELdI-2bBSOQt5NbXDnLJtpSfiX0Ph)
+- [Ladies & Gentlemen... 50 Years of SNL Music: The Ultimate Documentary Playlist](https://www.youtube.com/playlist?list=PLgQg6-RFObZev-mTtNfoIy6wDvF71OnRH)
+- [BORDERLINE (2025) - All Official Trailers & Movie Updates](https://www.youtube.com/playlist?list=PLZtbAyx5aQQDJh7WdKVdCGcLEp7JwlWZ2)
